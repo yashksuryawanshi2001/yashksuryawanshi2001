@@ -6,7 +6,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=YashSuryawanshi2023&label=Profile%20views&color=0e75b6&style=flat" alt="YashSuryawanshi2023" /> </p>
 
  
-- 📫 How to reach me **yash.suryawanshi@cognologix.com** 
+- 📫 How to reach me **yashsuryawanshi2910@gmail.com** 
 
 <h2 align="left">Connect with me:</h2>
 <p align="left">
